@@ -1,4 +1,4 @@
-# 🧑🏻‍💻 Benjamim Rlins
+# 🧑🏻‍💻 Benjamim Rolins
 
 **`Estudante - Sistema de Informações`**
 
